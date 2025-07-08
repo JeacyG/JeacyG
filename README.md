@@ -1,4 +1,4 @@
-👋 Hi, I'm Jean-Christophe, but people usualy call me JC (Jeacy)!
+👋 Hi, I'm Jean-Christophe, but people usually call me JC (Jeacy)!
 
 🚀 About Me
 
